@@ -1,4 +1,4 @@
-👨‍🎓 Student | Aspiring Developing Games
+👨‍🎓 Student |Developing Games
 
 🌱 Curious Learner | Computer Tehnology at The School of Electrical and Computer Engineering of Applied Studies
 
